@@ -1,1 +1,1 @@
-# wallpapers
+# wallpapers repo
